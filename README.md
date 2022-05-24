@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JCasillas100
+- 👀 I’m interested in  the Padres (baseball), playing my PS5, soccer, hiking, working out, and being social!
+- 🌱 I’m currently learning how to recruit engineers and respecting engineers work. Along with gaining some deep technical knowledge. 
+- 💞️ I’m looking to collaborate on getting new talent for my company
+- 📫 How to reach me.... find me on Linkedin https://www.linkedin.com/in/juan-casillas-34606b122
